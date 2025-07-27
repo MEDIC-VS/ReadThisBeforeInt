@@ -1,5 +1,7 @@
 ![Image](https://github.com/user-attachments/assets/25c2f827-30be-41b1-864f-a08c7d88bba3)
 
+![Image](https://github.com/user-attachments/assets/454a970a-29e9-4018-a7d7-0a55d2d787a3)
+
 # ![Image](https://github.com/user-attachments/assets/be0a9d5c-a706-4931-9807-42784b863704) ⊰ 𝑾𝒆𝒍𝒄𝒐𝒎𝒆 ⊱
 
 𝐂𝐚𝐥𝐥 𝐦𝐞 𝐒𝐤𝐲/𝐒𝐤𝐲𝐥𝐞𝐫/𝐌𝐞𝐝𝐢𝐜 
